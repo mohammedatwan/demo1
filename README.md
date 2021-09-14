@@ -6,4 +6,3 @@ My mother language is Arabic
 
 The best restaurant is Gaza restaurant on Istanbul
 Eritrean
-
